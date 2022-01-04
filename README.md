@@ -1,0 +1,2 @@
+# MicrosoftxPJI
+Prestasi Junior Indonesia (PJI) is part of one of the world’s largest youth-serving NGOs, Junior Achievement (JA) Worldwide, that focuses on preparing young people for employment and entrepreneurship. We create pathways for employability, job creation, and financial success by delivering hands-on experiential learning in work readiness, financial literacy, and entrepreneurship education
